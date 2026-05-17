@@ -1,10 +1,10 @@
-Top Astrill VPN Aplicativo | proteção contra vazamento de DNS + política de não registro é o melhor Astrill VPN aplicativo com proteção contra vazamento de DNS e política de não
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Fragmentvonditch.github.io/astrill-vpn-rd75/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
