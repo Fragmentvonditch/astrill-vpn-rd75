@@ -1,10 +1,10 @@
-顶级Astrill应用 | DNS泄露保护 + 无日志政策 是最佳 Astrill 应用，集成 DNS泄露保护 和 无日志政策。安全且优化。
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/astrill-vpn-rd75/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
